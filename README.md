@@ -1,0 +1,2 @@
+# The-3-week-diet-regime
+This website strives to provide you with an honest feedback. I’ve been a witness to the changes I saw in a dear friend of mine who had made the decision to try out the 3 week diet. As a result, I’m in a good condition to drop an honest feedback before you opt on whether to try it out. Chapter 1 of the 3 week diet is available at absolutely no charge to you as a limited time offer for you to test drive!  3 week diet | lose weight in 3 week | 3 week fitness diet plan, Brian Flatt created this effective diet plan for helping people lose weight fast.
